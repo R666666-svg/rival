@@ -1,0 +1,2 @@
+# rival
+Sukses untuk maju
